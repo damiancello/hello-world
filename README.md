@@ -1,1 +1,5 @@
-# hello-world
+# hello-
+
+
+hej ludzie 
+strasznie lubie pizze
